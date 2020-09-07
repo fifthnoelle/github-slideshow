@@ -2,5 +2,9 @@
 layout: slide
 title: "Welcome to our second slide!"
 ---
-LMAO YO IM coding???
-Use the left arrow to go back!
+AHUH
+what do I have to put here
+Just uwu or something 
+Five lines?? u kiddin me?
+yo wut
+oh i was wrong lmao
